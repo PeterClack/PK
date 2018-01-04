@@ -1,0 +1,2 @@
+# PK
+Peter Dispensary is a reputed Exporter and Supplier of Indica Marijuana, Sativa Marijuana, Potassium Cyanide etc. The range of products that we offer comes from trusted industry suppliers and these are of superior quality. The well-equipped infrastructural unit that we have in the firm enables us to procure and test products, efficiently. FOR MORE INFORMATION VISIT OUR WEBITE http://www.peterdispensary.com/
